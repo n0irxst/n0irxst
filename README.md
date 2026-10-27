@@ -5,7 +5,7 @@
 
 I am a 20 year-old selectively anonymous person. I like to be called as Kora or Czar and I go by they/them unless you are one of my contact people. I prefer to not mention some of my personal information such as gender, location, pictures and voice due to special reasons and experiences. I am a byelingual person, I speak two languages fluently: English and Turkish. As a university student, I am studying English Language and Literature currently. I am an entp, but I am not extremely willing to open up to random people on the Internet. If you need to contact me, my discord user is in the description.
 
-**LAST UPDATED: 25/05/2026**
+**LAST UPDATED: 28/10/2026**
 
 
 
